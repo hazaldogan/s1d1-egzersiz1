@@ -1,1 +1,1 @@
-# s1d1-egzersiz1
+Hazal Taştan
