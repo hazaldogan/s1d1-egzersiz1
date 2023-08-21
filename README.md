@@ -1,1 +1,1 @@
-Hazal Taştan 2
+Hazal Taştan
